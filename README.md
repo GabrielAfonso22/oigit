@@ -1,5 +1,2 @@
-modificação
-alou
-bele
-tranquilo
-suave
+Onde o luxo encontra a serenidade
+Estrela do Mar Resort & Spa
