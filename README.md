@@ -6,3 +6,5 @@ https://docs.google.com/spreadsheets/d/1UWW5tnFU_9ENnHjScnC7ohWx9bgwER92gSEvV57d
 Sean Cliver Holiday Special Dunks from Leokick
 
 https://www.reddit.com/r/fashionreps2/wiki/index/
+
+como descobrir o endereço de ip de alguem - usamos o nslookup ou whois
